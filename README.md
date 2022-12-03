@@ -1,2 +1,1 @@
-# Deadx7.github.io
-Some creations
+These were made in primary school
